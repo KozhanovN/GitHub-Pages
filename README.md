@@ -10,4 +10,4 @@
 
 Было бы не плохо узанть что-то новое.
 
-![фото](https://i.imgur.com/fry4xuU.jpeg)
+![фото](https://sun9-56.userapi.com/c5724/u24862671/-6/x_c587a2b8.jpg)
